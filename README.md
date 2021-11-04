@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @matt64256
-- 👀 I’m interested in women and money and power
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on github
-- 📫 How to reach me - my email is mmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+- 👀 I’m interested in Tetris gaming
+- 🌱 I’m currently learning how to 2 tetris
+- 💞️ I’m looking to collaborate on tetris gameplay strategy
+- 📫 How to reach me - go to local arcade and find me playing tetris or email me at matthew.chancelopez@gmail.com
